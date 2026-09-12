@@ -54,4 +54,4 @@
 ### Connect with Me
 
 * **LinkedIn:** [itsrawanmansour](https://www.linkedin.com/in/itsrawanmansour)
-* **Email:** itsrawanmansour@gmail.com[cite: 1]
+* **Email:** itsrawanmansour@gmail.com
